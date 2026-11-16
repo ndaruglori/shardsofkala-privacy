@@ -38,4 +38,4 @@ If this policy changes, the latest version will be posted on this page with a ne
 
 ## Contact
 
-Questions about this policy: [Lunar Winter contact email]
+Questions about this policy: lunarwinterid@gmail.com
